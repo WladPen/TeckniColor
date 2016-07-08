@@ -1,2 +1,2 @@
 # TeckniColor
-Inspirar, Innovar, Crear... Sin Limites.
+Inspirar, Innovar, Crear...mites.
